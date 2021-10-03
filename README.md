@@ -11,7 +11,9 @@ Also i'm search for new technologies and/or libraries to improve my skills and j
 
 When i'm not working I like to go hiking in the mountains, play video games, read few books.
 
-📫 Get in touch with me at pietro.marino_84@hotmail.it
+## 📫 Get in touch
+
+You can write me at pietro.marino_84@hotmail.it
 
 ## My social
 
