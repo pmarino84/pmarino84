@@ -17,4 +17,4 @@ You can write me at pietro.marino_84@hotmail.it
 
 ## My social
 
-[LinkedIn](www.linkedin.com/in/pietro-marino-644a7a12a)
+[LinkedIn](https://www.linkedin.com/in/pietro-marino-644a7a12a)
